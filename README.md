@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Ayham Alloush
+# Hi there! 👋 I'm Alayham Alloush
 
 ---
 
